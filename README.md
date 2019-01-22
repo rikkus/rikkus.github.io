@@ -1,1 +1,0 @@
-# rikkus.github.io
